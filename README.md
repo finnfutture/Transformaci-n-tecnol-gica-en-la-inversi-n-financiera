@@ -1,1 +1,2 @@
 # Transformaci-n-tecnol-gica-en-la-inversi-n-financiera
+Las plataformas de inversión online han revolucionado el acceso a los mercados financieros, permitiendo que cualquier persona gestione su propio patrimonio. Con el uso de inteligencia artificial y fintechs, las inversiones se han vuelto más accesibles, eficientes y personalizadas. Esta democratización financiera ha eliminado barreras que antes limitaban a los pequeños inversores, permitiendo que más personas participen de forma independiente y con herramientas avanzadas.
